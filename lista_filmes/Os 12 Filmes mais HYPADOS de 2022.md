@@ -99,4 +99,5 @@
 
 #### 12 - Morbius :heavy_check_mark::fire:
 
-- Um dos personagens mais interessantes e conflituosos da Marvel chega à tela grande com o vencedor do Oscar **Jared Leto** se transformando no enigmático anti-herói **Michael Morbius**. Gravemente adoecido com um raro distúrbio sanguíneo e determinado a salvar outros que sofrem do mesmo destino, o **Dr. Morbius** arrisca tudo numa aposta desesperada. E embora a princípio tudo pareça um sucesso absoluto, surge uma escuridão que se desencadeia dentro dele. O bem superará o mal - ou Morbius sucumbirá aos seus novos e misteriosos desejos?
+- Um dos personagens mais interessantes e conflituosos da Marvel chega à tela grande com o vencedor do Oscar **Jared Leto** se transformando no enigmático anti-herói **Michael Morbius**. Gravemente adoecido com um raro distúrbio sanguíneo e determinado a salvar outros que sofrem do mesmo destino, o **Dr. Morbius** arrisca tudo numa aposta desesperada. E embora a princípio tudo pareça um sucesso absoluto, surge uma escuridão que se desencadeia dentro dele. **O bem superará o mal - ou Morbius sucumbirá aos seus novos e misteriosos desejos?**
+- **31 de Março de 2022**
