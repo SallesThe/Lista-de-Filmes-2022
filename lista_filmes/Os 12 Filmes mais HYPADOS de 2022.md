@@ -75,14 +75,14 @@
 
 
 
-#### 11 - Pantera Negra - Wakanda forever
+#### 11 - Pantera Negra - Wakanda forever ✔️:fire:
 
 - **Pantera Negra - Wakanda forever** é um futuro filme estadunidense de super-herói baseado no personagem **Pantera Negra da Marvel Comics**. Produzido pelo Marvel Studios e distribuído pela Walt Disney Studios Motion Pictures, é a sequência de Pantera Negra e o trigésimo filme do Universo Cinematográfico Marvel.
 - **10 de Novembro de 2022**
 
 
 
-#### 12 - Avatar 2
+#### 12 - Avatar 2 ✔️:fire:
 
 -  **Avatar: The Way of Water é a continuação de Avatar**, com sua data de lançamento prevista para 16 de dezembro de 2022. O filme é co-escrito, co-editado, co-produzido e dirigido por James Cameron. Será a sequência do blockbuster de 2009 Avatar. E**le vai estrelar Sam Worthington, Zoë Saldaña e Stephen Lang**.
 - **15 de Dezembro de 2022**
